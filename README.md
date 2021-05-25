@@ -5,4 +5,4 @@ Baby's First Repository By Themself 🤯
 
 For Now. Hi 👋 My name is Jo 🐸
 
-Ask ❓ Me Anything! *Nice to meet you ❗ * 🤝
+Ask ❓ Me Anything! *Nice to meet you❗* 🤝
