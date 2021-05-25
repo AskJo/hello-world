@@ -1,7 +1,7 @@
 # hello-world
 Baby's First Repository By Themself 🤯
 
-🚧 **Under Contrsuction** 🚧. Something Exciting Awaits 🤯
+🚧 **Under Construction** 🚧 Something Exciting Awaits 🤯
 
 For Now. Hi 👋 My name is Jo 🐸
 
